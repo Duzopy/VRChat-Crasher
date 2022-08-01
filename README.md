@@ -8,6 +8,9 @@
 - How to setup a crash avatar: https://www.youtube.com/watch?v=an3Tbj6xhwM<br>
 - Block your own avatar so you wont get crashed: https://www.youtube.com/watch?v=KfcVHMzrUp0<br>
 
+- Quest: Set on Android in unity
+- PC: Set on Windows in unity
+
 <b>[Proof]</b><br>
 
 - Proof Video: https://www.youtube.com/watch?v=BvTAXeNg5g8
