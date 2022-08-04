@@ -18,6 +18,7 @@
 <b>[Methods]</b><br>
 - Do not tell anyone you are the crasher will lead you to a ban
 - Do not return back too the same room, wait 25 mins or a bit longer
+- Once you know you crashed the whole room, get out of the room, do not stay too long, they will find out you are the crasher!
 
 <b>[Perfect Rooms]</b>
 - Search: Furry (most toxic peepz), (Avoid user 'Lt.Shadow', will lead you to a ban) 
