@@ -15,4 +15,16 @@
 
 - Proof Video: https://www.youtube.com/watch?v=BvTAXeNg5g8
 
-- Discord: Duzopy#5653
+<b>[Methods]</b><br>
+- Do not tell anyone you are the crasher will lead you to a ban
+- Do not return back too the same room, wait 25 mins or a bit longer
+
+<b>[Perfect Rooms]</b>
+- Search: Furry (most toxic peepz), (Avoid user 'Lt.Shadow', will lead you to a ban) 
+- Search: Chess (just for fun)
+- Search: for any movie worlds (most of the quest users related here)
+
+<b>[VRChat Users to Avoid - set them on a blocklist]</b>
+- Lt.Shadow
+
+<b>- Discord: Duzopy#5653</b>
