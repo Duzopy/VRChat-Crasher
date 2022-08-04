@@ -26,6 +26,6 @@
 - Search: for any movie worlds (most of the quest users related here)
 
 <b>[VRChat Users to Avoid - set them on a blocklist]</b>
-- Lt.Shadow
+- Lt.Shadow (https://i.imgur.com/qOoLGMz_d.webp?maxwidth=1337)
 
 <b>- Discord: Duzopy#5653</b>
