@@ -21,11 +21,11 @@
 - Once you know you crashed the whole room, get out of the room, do not stay too long, they will find out you are the crasher!
 
 <b>[Perfect Rooms]</b>
-- Search: Furry (most toxic peepz), (Avoid user 'Lt.Shadow', will lead you to a ban) 
+- Search: Furry (most toxic peepz), (Avoid user 'Lt_Shadow', will lead you to a ban) 
 - Search: Chess (just for fun)
 - Search: for any movie worlds (most of the quest users related here)
 
 <b>[VRChat Users to Avoid - set them on a blocklist]</b>
-- Lt.Shadow (https://i.imgur.com/qOoLGMz_d.webp?maxwidth=1337)
+- Lt_Shadow (https://i.imgur.com/qOoLGMz_d.webp?maxwidth=1337)
 
 <b>- Discord: Duzopy#5653</b>
