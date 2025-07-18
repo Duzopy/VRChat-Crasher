@@ -27,5 +27,3 @@
 
 <b>[VRChat Users to Avoid - set them on a blocklist]</b>
 - Lt_Shadow (https://i.imgur.com/qOoLGMz_d.webp?maxwidth=1337)
-
-<b>- Discord: Duzopy#5653</b>
